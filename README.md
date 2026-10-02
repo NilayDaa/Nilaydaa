@@ -35,4 +35,4 @@ ICT student at JAMK University of Applied Sciences (cybersecurity specialization
 
 - 📧 Email: nilaydas.ndc@gmail.com / dasniloy39@gmail.com
 - 💼 LinkedIn: linkedin.com/in/nilay-das-b3485532b
-- 🌐 Portfolio: nilaydaa.github.io
+- 🌐 Portfolio: *TBA*
